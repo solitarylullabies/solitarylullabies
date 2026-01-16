@@ -1,7 +1,17 @@
 # Hello! I'm ${\color{#fb8bcf}Eris!}$
 I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines='Will I be able to love them completely and earnestly? Will I be able to save them completely and properly?'" alt="Typing SVG" /></a>
+
  ${\color{#fb8bcf}TEST}$
+
+ <details>
+
+  <summary>BASIC INFO!!</summary>
+  - I'm 19!!
+  - I have autism, please use tone tags
+  & be patient!
+ </details>
 
 <details>
 
