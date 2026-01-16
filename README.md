@@ -78,11 +78,11 @@ Minecraft, Still Wakes the Deep
  ${\color{#FF66BB}Emu}$ ${\color{#FF66BB}Otori}$ & ${\color{#BB88EE}Rui}$ ${\color{#BB88EE}Kamishiro}$
 
 ### Umamusume:
-${\color{#fb8bcf}Haru}$ ${\color{#fb8bcf}Urara,}$ ${\color{#fb8bcf}Meisho}$ ${\color{#fb8bcf}Doto,}$ ${\color{#fb8bcf}Orfevre,}$ ${\color{#}Daitaku}$ ${\color{#fb8bcf}Helios,}$ ${\color{#fb8bcf}Daiichi}$ ${\color{#fb8bcf}Ruby,}$
+${\color{#e078d3}Haru}$ ${\color{#e078d3}Urara,}$ ${\color{#6d5edc}Meisho}$ ${\color{#6d5edc}Doto,}$ ${\color{#de9c1f}Orfevre,}$ ${\color{#5031b4}Daitaku}$ ${\color{#5031b4}Helios,}$ ${\color{#660606}Daiichi}$ ${\color{#660606}Ruby,}$
 
- ${\color{#fb8bcf}Agnes}$ ${\color{#fb8bcf}Digital,}$ ${\color{#fb8bcf}Neo}$ ${\color{#fb8bcf}Universe,}$ ${\color{#fb8bcf}Rhein}$ ${\color{#fb8bcf}Kraft,}$ ${\color{#fb8bcf}Aston}$ ${\color{#fb8bcf}Machan}$ ${\color{#ac0000}DON'T}$ ${\color{#ac0000}FORGET}$ ${\color{#ac0000}ME}$
+ ${\color{#e08cd2}Agnes}$ ${\color{#e08cd2}Digital,}$ ${\color{#2d43cd}Neo}$ ${\color{#e6cf59}Universe,}$ ${\color{#c7346d}Rhein}$ ${\color{#c7346d}Kraft,}$ ${\color{#ac0000}Aston}$ ${\color{#ac0000}Machan}$ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=3500&pause=1000&color=B60000&width=435&lines=Don't+forget+me.)](https://git.io/typing-svg)
 
-Still In Love, Loves Only You, Wonder Acute, Seeking the Pearl
+ ${\color{#fb8bcf}Still}$ ${\color{#fb8bcf}In}$ ${\color{#fb8bcf}Love,}$ ${\color{#fb8bcf}Loves}$ ${\color{#fb8bcf}Only}$ ${\color{#fb8bcf}You,}$ ${\color{#fb8bcf}Wonder}$ ${\color{#fb8bcf}Acute,}$ ${\color{#fb8bcf}Seeking}$ ${\color{#fb8bcf}the}$ ${\color{#fb8bcf}Pearl}$
 
 ### Twisted Wonderland
 Malleus Draconia & Leona Kingscholar MY WIVES!!!! ❤️
