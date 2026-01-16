@@ -25,3 +25,7 @@ Hu Tao, Furina, Mavuika & Flins!
 
 ### Project Sekai:
 Emu Otori (she is literally me btw) & Rui Kamishiro
+
+### Umamusume:
+Haru Urara, Meisho Doto, Orfevre, Daitaku Helios, Daiichi Ruby,
+Agnes Digital, Neo Universe, Rhein Kraft, Aston Machan  ${\color{#ac0000}DON'T}$ ${\color{#ac0000}FORGET}$ ${\color{#ac0000}ME}$
