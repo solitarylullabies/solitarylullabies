@@ -10,7 +10,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>BASIC INFO!!</summary>
+  <summary>${\color{#fb8bcf}BASIC}$ ${\color{#fb8bcf}INFO}$</summary>
  
  - I'm 19!
  - Autistic! Pls be patient & use tone tags!!
@@ -21,7 +21,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>DNI & IWC</summary>
+  <summary>${\color{#fb8bcf}DNI}$ ${\color{#fb8bcf}&}$ ${\color{#fb8bcf}IWC}$</summary>
  
   ### DNI
   [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
@@ -45,7 +45,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>PONYTOWN INFO!!</summary>
+  <summary>${\color{#fb8bcf}PONYTOWN}$</summary>
 
   - Cuddle comf! I enjoy people hanging out with me ^_^
   - C+H always unless I have dniuf (VERY RARE)
@@ -57,7 +57,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
 <details>
 
-<summary>My HYPERFIXATIONS AND SMALLER INTERESTS!</summary>
+<summary>My ${\color{#fb8bcf}HYPERFIXATIONS}$ ${\color{#fb8bcf}AND}$ ${\color{#fb8bcf}INTERESTS}$</summary>
 
 ### Hyperfixations:
 Genshin Impact, Project Sekai, Umamusume, Twisted Wonderland, Slime Rancher
@@ -70,7 +70,7 @@ Minecraft, Still Wakes the Deep
 
 
 <details>
-<summary>MY FAVES</summary>
+<summary>${\color{#fb8bcf}FAVES}$</summary>
 
 ### Genshin Impact:
 Hu Tao, Furina, Mavuika & Flins!
