@@ -1,5 +1,5 @@
-#  ${\color{#fb8bcf}HELLOOO}$
-##  ${\color{#fb8bcf}I}$  ${\color{#fb8bcf}AM}$  ${\color{#fb8bcf}ERIS}$
+#  ${\color{#FF66BB}HELLOOO}$
+##  ${\color{#FF66BB}I}$  ${\color{#FF66BB}AM}$  ${\color{#FF66BB}ERIS/EMU/HARU URARA}$
 <img width="993" height="161" alt="image" src="https://github.com/user-attachments/assets/9463bb1f-327e-4478-9e4f-df16d72f4cf3" />
 
 
