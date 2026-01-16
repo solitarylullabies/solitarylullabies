@@ -75,12 +75,12 @@ Minecraft, Still Wakes the Deep
  ${\color{#6a4e38}Hu}$  ${\color{#6a4e38}Tao}$,  ${\color{#212fae}Furina}$,  ${\color{#d61818}Mavuika}$ & ${\color{#411c87}Flins}$
 
 ### Project Sekai:
-Emu Otori (she is literally me btw) & Rui Kamishiro
+ ${\color{#FF66BB}Emu}$ ${\color{#FF66BB}Otori}$ & ${\color{#BB88EE}Rui}$ ${\color{#BB88EE}Kamishiro}$
 
 ### Umamusume:
-Haru Urara, Meisho Doto, Orfevre, Daitaku Helios, Daiichi Ruby,
+${\color{#fb8bcf}Haru}$ ${\color{#fb8bcf}Urara,}$ ${\color{#fb8bcf}Meisho}$ ${\color{#fb8bcf}Doto,}$ ${\color{#fb8bcf}Orfevre,}$ ${\color{#}Daitaku}$ ${\color{#fb8bcf}Helios,}$ ${\color{#fb8bcf}Daiichi}$ ${\color{#fb8bcf}Ruby,}$
 
-Agnes Digital, Neo Universe, Rhein Kraft, Aston Machan, ${\color{#ac0000}DON'T}$ ${\color{#ac0000}FORGET}$ ${\color{#ac0000}ME}$
+ ${\color{#fb8bcf}Agnes}$ ${\color{#fb8bcf}Digital,}$ ${\color{#fb8bcf}Neo}$ ${\color{#fb8bcf}Universe,}$ ${\color{#fb8bcf}Rhein}$ ${\color{#fb8bcf}Kraft,}$ ${\color{#fb8bcf}Aston}$ ${\color{#fb8bcf}Machan}$ ${\color{#ac0000}DON'T}$ ${\color{#ac0000}FORGET}$ ${\color{#ac0000}ME}$
 
 Still In Love, Loves Only You, Wonder Acute, Seeking the Pearl
 
