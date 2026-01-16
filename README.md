@@ -1,6 +1,5 @@
-# Hello! I'm ${\color{#fb8bcf}Eris!}$
-I also go by Haru, Urara, Emu or whoever I'm cosplaying!
-
+#  ${\color{#fb8bcf}HELLOOO}$
+##  ${\color{#fb8bcf}I}$  ${\color{#fb8bcf}AM}$  ${\color{#fb8bcf}ERIS}$
 <img width="993" height="161" alt="image" src="https://github.com/user-attachments/assets/9463bb1f-327e-4478-9e4f-df16d72f4cf3" />
 
 
