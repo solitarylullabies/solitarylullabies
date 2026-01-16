@@ -1,7 +1,7 @@
 # Hello! I'm ${\color{#fb8bcf}Eris!}$
 I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=71A9C0&width=435&lines=%22Will+I+be+able+to+save+them;+completely+and+earnestly%3F%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=FF75D7&multiline=true&width=435&lines=%22From+now+on+take+a+note+of;the+signs+of+your+wish+one+by+one!%22)](https://git.io/typing-svg)
 
  ${\color{#fb8bcf}TEST}$
 
