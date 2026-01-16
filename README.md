@@ -10,7 +10,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>${\color{#fb8bcf}BASIC}$ ${\color{#fb8bcf}INFO}$</summary>
+  <summary>${\color{#f3a4ce}BASIC}$ ${\color{#f3a4ce}INFO}$</summary>
  
  - I'm 19!
  - Autistic! Pls be patient & use tone tags!!
@@ -21,7 +21,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>${\color{#fb8bcf}DNI}$ ${\color{#fb8bcf}AND}$ ${\color{#fb8bcf}IWC}$</summary>
+  <summary>${\color{#7c0000}DNI}$ ${\color{#7c0000}AND}$ ${\color{#7c0000}IWC}$</summary>
  
   ### DNI
   [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
