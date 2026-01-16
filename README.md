@@ -9,8 +9,20 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
   <summary>BASIC INFO!!</summary>
   - I'm 19!!
+  
   - I have autism, please use tone tags
   & be patient!
+
+  - I actually have a hard time talking to others
+   at first, and am usually scared to interact first
+   it does not mean I hate you!! no worries ^_^
+ </details>
+
+ <details>
+
+  <summary>DNI & IWC</summary>
+  ### DNI
+  Proshippers/Darkshippers/etc,
  </details>
 
 <details>
@@ -39,7 +51,9 @@ Emu Otori (she is literally me btw) & Rui Kamishiro
 ### Umamusume:
 Haru Urara, Meisho Doto, Orfevre, Daitaku Helios, Daiichi Ruby,
 
-Agnes Digital, Neo Universe, Rhein Kraft, Aston Machan  ${\color{#ac0000}DON'T}$ ${\color{#ac0000}FORGET}$ ${\color{#ac0000}ME}$
+Agnes Digital, Neo Universe, Rhein Kraft, Aston Machan, ${\color{#ac0000}DON'T}$ ${\color{#ac0000}FORGET}$ ${\color{#ac0000}ME}$
+
+Still In Love, Loves Only You, Wonder Acute, Seeking the Pearl
 
 ### Twisted Wonderland
 Malleus Draconia & Leona Kingscholar MY WIVES!!!! ❤️
