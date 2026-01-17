@@ -14,6 +14,8 @@
  - EXTREMLY clingy! I always want to hang out w green names ^_^
  - I'd rather you int first because I'm a coward </3
  - I block freely if you fit my dni
+ - <img width="425" height="100" alt="image" src="https://github.com/user-attachments/assets/410b6ebd-2f5d-4d87-8ae1-0e6d969eba4b" />
+OK BRO IF YOU SAY SO 😭😭
  </details>
 
  <details>
