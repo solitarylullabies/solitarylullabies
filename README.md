@@ -1,5 +1,5 @@
 #  ${\color{#FF66BB}HELLOOO}$
-##  ${\color{#FF66BB}I}$  ${\color{#FF66BB}AM}$  ${\color{#FF66BB}ERIS/EMU/HARU+URARA}$
+##  ${\color{#FF66BB}I}$  ${\color{#FF66BB}AM}$  ${\color{#FF66BB}ERIS/EMU/HARU_URARA}$
 <img width="993" height="161" alt="image" src="https://github.com/user-attachments/assets/9463bb1f-327e-4478-9e4f-df16d72f4cf3" />
 
 
@@ -85,9 +85,4 @@ ${\color{#e078d3}Haru}$ ${\color{#e078d3}Urara,}$ ${\color{#6d5edc}Meisho}$ ${\c
 ### Twisted Wonderland
  ${\color{#338111}Malleus}$ ${\color{#338111}Draconia}$ &  ${\color{#c79119}Leona}$ ${\color{#c79119}Kingscholar}$ MY WIVES!!!! ❤️
 
-</details>
-
-<details>
-<summary>test</summary>
- test test
 </details>
