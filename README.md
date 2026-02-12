@@ -36,7 +36,7 @@ OK BRO IF YOU SAY SO 😭😭
   ### IWC
   Ruikasa/Anhane/Akitoya/Emunene shippers unless we're friends,
  
-  NONSHARING yumeshippers of characters I like (NOT A YUMESHIPPER!)
+  NONSHARING yumeshippers of characters I like
  
   Malleus x 1st/2nd years shippers, Leona x Ruggie shippers, Idia x Lilia shippers
  
@@ -49,6 +49,8 @@ OK BRO IF YOU SAY SO 😭😭
 
   - Cuddle comf! I enjoy people hanging out with me ^_^
   - C+H always unless I have dniuf (VERY RARE)
+  - Fandom dniuf just means don't int with me if you're cosplaying a char from that media
+     - The reasons may include that I don't trust the fandom not to defend actions of a char (Like Sol from TKATB) or I just do not like the fandom in general (Dandy's World)
   - IWCUF just means don't talk to me! Cuddles r fine <3
   - If we're green names for following each other on github, feel free to cuddle me ^_^
   - Green names = friends !!!
