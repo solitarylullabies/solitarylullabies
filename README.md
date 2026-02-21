@@ -1,14 +1,15 @@
-#  ${\color{#FF66BB}HELLOOO}$
-##  ${\color{#FF66BB}I}$  ${\color{#FF66BB}AM}$  ${\color{#FF66BB}ERIS/EMU/HARU+URARA}$
-<img width="993" height="161" alt="image" src="https://github.com/user-attachments/assets/9463bb1f-327e-4478-9e4f-df16d72f4cf3" />
+#  ${\color{#69a6e0}Hello,}$
+##  ${\color{#69a6e0}I}$  ${\color{#69a6e0}am}$  ${\color{#69a6e0}Eris/Emu/Kanade/Haru/Urara}$
+<img width="980" height="189" alt="image" src="https://github.com/user-attachments/assets/fc34305a-5bd9-432b-aabf-8f5684b15fe5" />
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=1000&color=FF75D7&width=435&lines=%22From+now+on+take+a+note+of;the+signs+of+your+wish+one+by+one!%22)](https://git.io/typing-svg)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Erissie&color=FF66BB&style=for-the-badge&label=HAI+^^)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB6688&width=435&lines=......I'm+going+to+miss+you.)](https://git.io/typing-svg)
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Erissie&color=33437e&style=for-the-badge&label=Lyrics)
  <details>
 
-  <summary>${\color{#f3a4ce}BASIC}$ ${\color{#f3a4ce}INFO}$</summary>
+  <summary>${\color{#3593e0}BASIC}$ ${\color{#3593e0}INFO}$</summary>
  
  - I'm 19!
  - Autistic! Pls be patient & use tone tags!!
@@ -21,7 +22,7 @@ OK BRO IF YOU SAY SO 😭😭
 
  <details>
 
-  <summary>${\color{#a80060}DNI}$ ${\color{#a80060}AND}$ ${\color{#a80060}IWC}$</summary>
+  <summary>${\color{#7ce1ff}DNI}$ ${\color{#7ce1ff}AND}$ ${\color{#7ce1ff}IWC}$</summary>
  
   ### DNI
   [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
@@ -45,7 +46,7 @@ OK BRO IF YOU SAY SO 😭😭
 
  <details>
 
-  <summary>${\color{#cd3a8e}PONYTOWN}$</summary>
+  <summary>${\color{#a875a1}PONYTOWN}$</summary>
 
   - Cuddle comf! I enjoy people hanging out with me ^_^
   - C+H always unless I have dniuf (VERY RARE)
@@ -62,7 +63,7 @@ OK BRO IF YOU SAY SO 😭😭
 
 <details>
 
-<summary>${\color{#ff0092}HYPERFIXATIONS}$ ${\color{#ff0092}AND}$ ${\color{#ff0092}INTERESTS}$</summary>
+<summary>${\color{#534942}HYPERFIXATIONS}$ ${\color{#534942}AND}$ ${\color{#534942}INTERESTS}$</summary>
 
 ### Hyperfixations:
 Genshin Impact, Project Sekai, Umamusume, Twisted Wonderland, Slime Rancher
@@ -75,7 +76,7 @@ Minecraft, Still Wakes the Deep
 
 
 <details>
-<summary>${\color{#FF66BB}FAVES}$</summary>
+<summary>${\color{#a23f83}FAVES}$</summary>
 
 ### Genshin Impact:
  ${\color{#6a4e38}Hu}$  ${\color{#6a4e38}Tao}$,  ${\color{#212fae}Furina}$,  ${\color{#d61818}Mavuika}$ & ${\color{#411c87}Flins}$
