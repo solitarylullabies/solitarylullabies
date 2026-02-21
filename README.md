@@ -1,5 +1,5 @@
 #  ${\color{#69a6e0}Hello,}$
-##  ${\color{#69a6e0}I}$  ${\color{#69a6e0}am}$  ${\color{#69a6e0}Eris/Emu/Kanade}$
+##  ${\color{#69a6e0}I}$  ${\color{#69a6e0}am}$  ${\color{#69a6e0}Eris/Kanade}$
 <img width="980" height="189" alt="image" src="https://github.com/user-attachments/assets/fc34305a-5bd9-432b-aabf-8f5684b15fe5" />
 
 
@@ -12,12 +12,13 @@
   <summary>${\color{#884499}BASIC}$ ${\color{#884499}INFO}$</summary>
  
  - I'm 19!
- - Autistic! Pls be patient & use tone tags!!
- - EXTREMLY clingy! I always want to hang out w green names ^_^
- - I'd rather you int first because I'm a coward </3
+ - Autistic, please use tone tags around me
+ - I'm very clingy, if you're a green name I will likely come up to you and hang out.
+ - I don't go up to others often, feel free to interact with me first.
  - I block freely if you fit my dni
+ - I'm mentally unwell, interact with care. I'm not a mean person at all, I'm just extremely sensitive & unstable.
  - <img width="425" height="100" alt="image" src="https://github.com/user-attachments/assets/410b6ebd-2f5d-4d87-8ae1-0e6d969eba4b" />
-OK BRO IF YOU SAY SO 😭😭
+I will be stuck in the safe server
  </details>
 
  <details>
@@ -25,13 +26,9 @@ OK BRO IF YOU SAY SO 😭😭
   <summary>${\color{#BB6688}DNI}$ ${\color{#BB6688}AND}$ ${\color{#BB6688}IWC}$</summary>
  
   ### DNI
-  [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
-  
-  People who make NSFW jokes in public chat in the safe server
+  [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc, people who make NSFW jokes in public chat in the safe server
   
   <img width="299" height="20" alt="image" src="https://github.com/user-attachments/assets/099fec29-d52e-4802-b022-889e1db59561" />
-
-  ^ People who act like this, like I can tell you're a man when you do this btw
 
 
   ### IWC
@@ -48,16 +45,12 @@ OK BRO IF YOU SAY SO 😭😭
 
   <summary>${\color{#8888CC}PONYTOWN}$</summary>
 
-  - Cuddle comf! I enjoy people hanging out with me ^_^
-  - C+H always unless I have dniuf (VERY RARE)
+  - Cuddle comf, my love language  is quality time.
+  - Whisper to int (W2I), I'm usually offtab.
   - Fandom dniuf just means don't int with me if you're cosplaying a char from that media
-     - The reasons may include that I don't trust the fandom not to defend actions of a char (Like Sol from TKATB) or I just do not like the fandom in general (Dandy's World)
-  - IWCUF just means don't talk to me! Cuddles r fine <3
-  - If we're green names for following each other on github, feel free to cuddle me ^_^
-  - Green names = friends !!!
-  - Always w2i pls!! I'm usually offtab
-  - <img width="415" height="301" alt="image" src="https://github.com/user-attachments/assets/b762de47-64b3-4033-b58d-442e7580809c" />
-  ^ usually seen around here!!
+  - IWCUF just means don't talk to me. Cuddles r okay with me.
+  - If we're green names or following each other on github, feel free to hang out with me.
+  - Green names = friends
 
  </details>
 
