@@ -1,5 +1,5 @@
 #  ${\color{#69a6e0}Hello,}$
-##  ${\color{#69a6e0}I}$  ${\color{#69a6e0}am}$  ${\color{#69a6e0}Eris/Kanade}$
+##  ${\color{#69a6e0}I}$  ${\color{#69a6e0}am}$  ${\color{#69a6e0}Kanade,}$ ${\color{#69a6e0}but}$ ${\color{#69a6e0}I}$ ${\color{#69a6e0}also}$ ${\color{#69a6e0}go}$ ${\color{#69a6e0}by}$ ${\color{#69a6e0}Eris.}$
 <img width="980" height="189" alt="image" src="https://github.com/user-attachments/assets/fc34305a-5bd9-432b-aabf-8f5684b15fe5" />
 
 
