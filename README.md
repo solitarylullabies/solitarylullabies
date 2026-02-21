@@ -9,7 +9,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Erissie&color=33437e&style=for-the-badge&label=Lyrics)
  <details>
 
-  <summary>${\color{#3593e0}BASIC}$ ${\color{#3593e0}INFO}$</summary>
+  <summary>${\color{#884499}BASIC}$ ${\color{#884499}INFO}$</summary>
  
  - I'm 19!
  - Autistic! Pls be patient & use tone tags!!
@@ -22,7 +22,7 @@ OK BRO IF YOU SAY SO 😭😭
 
  <details>
 
-  <summary>${\color{#7ce1ff}DNI}$ ${\color{#7ce1ff}AND}$ ${\color{#7ce1ff}IWC}$</summary>
+  <summary>${\color{#BB6688}DNI}$ ${\color{#BB6688}AND}$ ${\color{#BB6688}IWC}$</summary>
  
   ### DNI
   [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
@@ -46,7 +46,7 @@ OK BRO IF YOU SAY SO 😭😭
 
  <details>
 
-  <summary>${\color{#a875a1}PONYTOWN}$</summary>
+  <summary>${\color{#8888CC}$</summary>
 
   - Cuddle comf! I enjoy people hanging out with me ^_^
   - C+H always unless I have dniuf (VERY RARE)
@@ -63,7 +63,7 @@ OK BRO IF YOU SAY SO 😭😭
 
 <details>
 
-<summary>${\color{#534942}HYPERFIXATIONS}$ ${\color{#534942}AND}$ ${\color{#534942}INTERESTS}$</summary>
+<summary>${\color{#CCAA88}HYPERFIXATIONS}$ ${\color{#CCAA88}AND}$ ${\color{#CCAA88}INTERESTS}$</summary>
 
 ### Hyperfixations:
 Genshin Impact, Project Sekai, Umamusume, Twisted Wonderland, Slime Rancher
@@ -76,7 +76,7 @@ Minecraft, Still Wakes the Deep
 
 
 <details>
-<summary>${\color{#a23f83}FAVES}$</summary>
+<summary>${\color{#DDAACC}FAVES}$</summary>
 
 ### Genshin Impact:
  ${\color{#6a4e38}Hu}$  ${\color{#6a4e38}Tao}$,  ${\color{#212fae}Furina}$,  ${\color{#d61818}Mavuika}$ & ${\color{#411c87}Flins}$
