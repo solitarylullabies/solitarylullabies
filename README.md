@@ -46,7 +46,7 @@ OK BRO IF YOU SAY SO 😭😭
 
  <details>
 
-  <summary>${\color{#8888CC}$</summary>
+  <summary>${\color{#8888CC}PONYTOWN}$</summary>
 
   - Cuddle comf! I enjoy people hanging out with me ^_^
   - C+H always unless I have dniuf (VERY RARE)
