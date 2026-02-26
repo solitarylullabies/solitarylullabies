@@ -6,7 +6,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB6688&width=435&lines=......I'm+going+to+miss+you.)](https://git.io/typing-svg)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Erissie&color=33437e&style=for-the-badge&label=Lyrics)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Erissie&color=33437e&style=for-the-badge&label=lyrics_written)
  <details>
 
   <summary>${\color{#884499}BASIC}$ ${\color{#884499}INFO}$</summary>
