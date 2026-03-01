@@ -52,6 +52,7 @@ I will be stuck in the safe server
   - IWCUF just means don't talk to me. Cuddles r okay with me.
   - If we're green names or following each other on github, feel free to hang out with me.
   - Green names = friends
+  - If I'm using a Kanade skin, you'll know it's me from the glasses that I add to every Kanade skin
 
  </details>
 
