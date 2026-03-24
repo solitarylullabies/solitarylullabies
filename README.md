@@ -16,8 +16,8 @@
  - I'm very clingy, if you're a green name I will likely come up to you and hang out.
  - I don't go up to others often, feel free to interact with me first.
  - I block freely if you fit my dni
- - I'm mentally unwell, interact with care. I'm not a mean person at all, I'm just extremely sensitive & unstable.
- - I heavily kin Kanade & Emu. Kanade is currently the one I feel most comfortable being seen as for the moment. When I'm happier, I prefer being seen as Emu.
+ - I'm mentally unwell, interact with care. I'm not a mean person at all.
+ - I have a tendency to barely remember things in general, please be aware I may not remember much related to you
  - <img width="425" height="100" alt="image" src="https://github.com/user-attachments/assets/410b6ebd-2f5d-4d87-8ae1-0e6d969eba4b" />
 I will be stuck in the safe server
  </details>
@@ -38,8 +38,6 @@ I will be stuck in the safe server
   NONSHARING yumeshippers of characters I like
  
   Malleus x 1st/2nd years shippers, Leona x Ruggie shippers, Idia x Lilia shippers
- 
-  Any ex-friends, people who won't use tone tags when I ask them to
  </details>
 
  <details>
@@ -52,7 +50,6 @@ I will be stuck in the safe server
   - IWCUF just means don't talk to me. Cuddles r okay with me.
   - If we're green names or following each other on github, feel free to hang out with me.
   - Green names = friends
-  - If I'm using a Kanade skin, you'll know it's me from the glasses that I add to every Kanade skin
 
  </details>
 
