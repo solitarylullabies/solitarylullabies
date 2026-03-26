@@ -38,6 +38,9 @@ I will be stuck in the safe server
   NONSHARING yumeshippers of characters I like
  
   Malleus x 1st/2nd years shippers, Leona x Ruggie shippers, Idia x Lilia shippers
+
+  Online daters, I've been in them n know from experience there's a very high chance it won't work out
+  + Y'all r usually weird n just make me uncomfortable in general
  </details>
 
  <details>
