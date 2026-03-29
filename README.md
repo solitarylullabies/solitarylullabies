@@ -15,9 +15,10 @@
  - Autistic, please use tone tags around me
  - I'm very clingy, if you're a green name I will likely come up to you and hang out.
  - I don't go up to others often, feel free to interact with me first.
- - I block freely if you fit my dni
- - I'm mentally unwell, interact with care. I'm not a mean person at all.
+ - I block freely even if you aren't in my DNI
+ - I'm mentally unwell, this is something I need people who friend me to be aware of.
  - I have a tendency to barely remember things in general, please be aware I may not remember much related to you
+ - Sometimes my personality changes & I'm not very talkative and I find it hard to talk ! You're free to talk to me, but I may not be the best at replying!
  - <img width="425" height="100" alt="image" src="https://github.com/user-attachments/assets/410b6ebd-2f5d-4d87-8ae1-0e6d969eba4b" />
 I will be stuck in the safe server
  </details>
@@ -27,7 +28,7 @@ I will be stuck in the safe server
   <summary>${\color{#BB6688}DNI}$ ${\color{#BB6688}AND}$ ${\color{#BB6688}IWC}$</summary>
  
   ### DNI
-  [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc, people who make NSFW jokes in public chat in the safe server
+  [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc, people who make NSFW jokes in public chat in the safe server, anyone who makes characters who are dark ashy or white.
   
   <img width="299" height="20" alt="image" src="https://github.com/user-attachments/assets/099fec29-d52e-4802-b022-889e1db59561" />
 
